@@ -9,9 +9,7 @@ areas, including leadership development, learning, student
 engagement, and fostering shared interests.
 
 We believe in the power of leadership and its ability to drive
-positive change. That'
-
-s why we provide platforms and resources
+positive change. That's why we provide platforms and resources
 for our community members to develop their leadership skills.
 Through mentorship programs, workshops, and collaborative
 projects, we empower individuals to take on leadership roles
